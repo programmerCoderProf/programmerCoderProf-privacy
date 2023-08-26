@@ -24,4 +24,4 @@ Changes to This Policy
 We may occasionally update this policy. You are advised to periodically review the policy for any changes. Changes are effective upon posting.
 
 Contact
-For any questions regarding this policy or our data collection practices, contact us at dukhanhaytham@gmail.com.
+For any questions regarding this policy or our data collection practices, contact us at h3d.soft@gmail.com.
